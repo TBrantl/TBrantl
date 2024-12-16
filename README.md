@@ -11,8 +11,6 @@
 
 - Ask me about a time when I had to overcome something difficult
 
-- How to reach me? Do Not Disturb
-
 - Favorite quote: **"It ain't about how hard you hit. It's about how hard you can get hit and keep moving forward."**
 
 <p align="left">
